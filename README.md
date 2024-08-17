@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is 吉田咲</h2>
+<h2 align="left">Hi 👋! My name is ᴀsʜᴜ</h2>
 
 ###
 
